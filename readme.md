@@ -1,5 +1,5 @@
 # 💫 About Me:
-Bonjour à tous ! 😊 <br><br>Je suis à la recherche d'une alternance dans le domaine du développement web et de la sécurité 💻.<br> <br>Si vous avez des opportunités ou des conseils à partager, n'hésitez pas à me contacter !<br><br> Merci !
+Bonjour à tous ! 😊 <br><br><br><br> Merci !
 
 
 ## 🌐 Socials:
