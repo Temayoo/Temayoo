@@ -1,5 +1,5 @@
-# 💫 About Me:
-Bonjour à tous ! 😊 <br><br><br><br> Merci !
+# About Me:
+Bonjour à tous ! 
 
 
 ## 🌐 Socials:
